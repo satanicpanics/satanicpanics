@@ -1,1 +1,1 @@
-<img width="640" height="464" alt="aesthetic-wolf" src="https://github.com/user-attachments/assets/419f1a7b-d1b2-4b3f-a623-223e0752e968" />
+<img src="https://cdn.tvfanatic.com/uploads/2018/11/michael-langdon-in-his-new-setting-american-horror-story-s8e8.gif" alt="American Horror Story Season 8 Episode 8 Review: Sojourn - TV Fanatic"/><img width="540" height="250" alt="image" src="https://github.com/user-attachments/assets/1cfd63dc-593b-4ed7-bc67-17fc85266ee1" />
