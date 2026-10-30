@@ -1,1 +1,1 @@
-<img src="https://i.pinimg.com/originals/ec/47/03/ec470367daf6e8745cc26dddeef9a540.gif" alt="This may contain: a man with his eyes closed sitting at a piano"/><img width="540" height="350" alt="image" src="https://github.com/user-attachments/assets/8fb20244-fd8d-415c-b903-e6d1376e78f9" />
+<img src="https://i.pinimg.com/originals/ec/47/03/ec470367daf6e8745cc26dddeef9a540.gif" alt="This may contain: a man with his eyes closed sitting at a piano"/>
